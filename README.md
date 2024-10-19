@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @swipedcosta
-- 📫 How to reach me: alessandrocornejo@icloud.com | alessandrocornejo@sachristian.org |
+- 📫 How to reach me: alessandrocornejo@icloud.com | or @up21 on discord |
 - 😄 Pronouns: he/him
 
 <!---
