@@ -1,4 +1,4 @@
-- 👋 Hi, I’m alessandro
+- 👋 Hello, I’m Alessandro Cornejo!
 - 📫 How to reach me: alessandrocornejo@icloud.com | or @up21 on discord |
 - 😄 Pronouns: he/him
 
