@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @swipedcosta
+- 👋 Hi, I’m alessandro
 - 📫 How to reach me: alessandrocornejo@icloud.com | or @up21 on discord |
 - 😄 Pronouns: he/him
 
